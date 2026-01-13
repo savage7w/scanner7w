@@ -1,1 +1,1 @@
-# scanner7w
+scanner feito por savage, vadia!
